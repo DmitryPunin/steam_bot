@@ -21,3 +21,6 @@ Price drops for tracked games
 Major Steam sales events
 
 Special discounts and promotions
+![Скриншот-22-03-2026 20_05_25](https://github.com/user-attachments/assets/e208f0d2-4469-41fc-acfb-c7fdd0f4b801)
+![Скриншот-22-03-2026 20_10_50](https://github.com/user-attachments/assets/fa056598-71a9-45ce-9d55-3cb95376a03a)
+![Скриншот-22-03-2026 20_12_02](https://github.com/user-attachments/assets/d49f2aae-2033-486f-b964-48a043166682)
